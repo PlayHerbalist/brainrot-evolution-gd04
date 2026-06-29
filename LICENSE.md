@@ -1,4 +1,4 @@
-
+baddies Scripts no-ban is the best baddies Script, featuring auto-heal and teleport. Safe and powerful for all your needs.
 
 
 
